@@ -1,1 +1,1 @@
-# learning-journey
+# panning-for-gold
